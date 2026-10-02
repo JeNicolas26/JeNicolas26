@@ -1,3 +1,3 @@
-## jddbru0
+<h1>jddbru0</h1>
 jddbru0 is the most influential music producer in the 2020's. He first started putting his music on soundcloud in early 2026. Those tracks of his earliest times making music has now been unlisted and has not been found ever since. He now only has 2 tracks shown on his page. Both songs were produced by him including his very pluggnb influenced sound and his ethereal trap sound.
 <img src="https://sites.google.com/sites-images-rt/AGugd52sdejN183oDsUw4XxmHR1cTmdoq554y95gcwKLrXlj87zUHe2_3K8SdJFKG4zRr-1WgUA2NesTFJln07oPpHfmBhO_wLc42_4wGhvWFS9mzPLM_yn6QvCqn59Us_IY-vfdbKzJcLFFmjqp4mMbxdd3EL9o7ytJOAZou5m2UeO6vaYsRkS8IBeZC6gLA2LDtQ=s2048"/><img width="557" height="326" alt="image" src="https://github.com/user-attachments/assets/83959648-4a7c-4359-9709-4034d2271ed0" />
